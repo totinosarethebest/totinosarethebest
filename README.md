@@ -5,6 +5,6 @@
 - 📫 How to reach me:
  Discord: Elite#7466
 Snapchat: @Phil_c34
-TikTok: @officer.elite
+TikTok: @iheartswat2
 
 
