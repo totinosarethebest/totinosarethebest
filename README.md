@@ -3,8 +3,8 @@
 - 🌱 I’m currently learning Java script and Roblox studio. 
 - 💞️ I’m looking to collaborate on Roblox studio and my game "T&B City"
 - 📫 How to reach me:
- Discord: Elite#7466
-Snapchat: @Phil_c34
-TikTok: @iheartswat2
+Discord:@yallfwelite
+Snapchat: @yallfwelite
+
 
 
